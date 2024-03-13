@@ -1,16 +1,14 @@
-### Hi there 👋
+### Ayoo 👋
 
-<!--
-**justeNeKa/justeNeKa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_SOME THINGS ABOUT ME.._
 
-Here are some ideas to get you started:
+- Hey there, call me NK! 
+- Im a she/her, from **BRAZIL**. 🇧🇷🦜💕⚽
+- 📧 Reach me on: laysla.nascimento@escola.pr.gov.br
+- Im currently at school, trying to learn new stuff.
+- Be paient, im slow 😿
+- Poor english skills (I use google translator.)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- I draw too. Kinda lazy tho..
+
+![](https://media1.tenor.com/m/zN5C2mTeYWoAAAAC/dnce.gif)
