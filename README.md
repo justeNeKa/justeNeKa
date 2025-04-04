@@ -9,6 +9,4 @@ _SOME THINGS ABOUT ME.._
 - Be paient, im slow 😿
 - Poor english skills (I use google translator.)
 
-- I draw too. Kinda lazy tho..
-
 ![](https://media1.tenor.com/m/zN5C2mTeYWoAAAAC/dnce.gif)
